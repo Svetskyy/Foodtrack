@@ -1,0 +1,8 @@
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/73855457-5d0d-4664-8117-28bc1593ae58)
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/5c986091-7f87-4a02-9956-5d1fc59d8b12)
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/8016d33c-0be2-4606-9713-76945cdf4cc3)
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/e8465bde-b726-431f-aefc-795d814c8c01)
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/8066d393-9767-48db-a6ef-e615a7fa4ca7)
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/9a8cb184-8d01-4603-b3b8-ef938f7534db)
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/9d225013-5cd3-4c7c-9e6b-cccfbf0278bc)
+![image](https://github.com/Svetskyy/Foodtrack/assets/84508480/5c535f83-1293-46ae-b908-faf2576524d6)
